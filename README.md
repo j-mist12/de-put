@@ -1,2 +1,2 @@
-# de put
-input
+# dogshi
+tae ng aso
